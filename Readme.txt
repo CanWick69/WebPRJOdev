@@ -1,0 +1,1 @@
+Bu beni oku dosyasıdır
